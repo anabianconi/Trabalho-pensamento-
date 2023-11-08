@@ -1,1 +1,2 @@
 # Trabalho-pensamento-
+gente boa.
